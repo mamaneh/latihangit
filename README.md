@@ -1,0 +1,2 @@
+# latihangit
+dibuat untuk tugas
